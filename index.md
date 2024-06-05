@@ -1,11 +1,7 @@
-My name is Gus Mastrapa. The social media profile formerly known as @triphibian.
+I'm trying to re-define my relationship with tech and the Internet.
 
-I used to write, but I don't do that anymore. I am cool with that.
+Part of that is learning to DIY a lot of things that I trusted others to do for me.
 
-But I still have stuff on my mind.
-
-Rather than bore people in real life with my ideas I will put them here...
-
-...where no one (apart from you) will read them.
+I will probably use this blog to talk some of that out.
 
 Thanks for visiting.
