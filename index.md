@@ -1,5 +1,11 @@
-Here you can say lots of fun things about your site.
+My name is Gus Mastrapa. The social media profile formerly known as @triphibian.
 
-Maybe say a some things about yourself.
+I used to write, but I don't do that anymore. I am cool with that.
 
-Or maybe what you plan to blog about.
+But I still have stuff on my mind.
+
+Rather than bore people in rl with my dumb ideas I will put them here:
+
+Where no one (apart from you and the AI) will read them.
+
+Thanks for visiting.
