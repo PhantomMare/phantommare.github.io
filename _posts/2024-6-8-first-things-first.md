@@ -1,4 +1,4 @@
-## I Quit
+## On Quitting
 
 I used to joke about making one of those tiny coffee table books collecting Tweets, forum posts, Facebook updates of people quitting the community. This kind of kiss off is somewhat cliched. Because inevitably the poster returns. Or the public message is a cry for attention and a chance to vent frustation towards their enemies, frenemies, etc. A goodbye post is one of the myriad end points of forum drama -- part of the social internet's circle of life. An inherently immature part. At least in my estimation.
 
