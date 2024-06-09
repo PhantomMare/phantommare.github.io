@@ -9,7 +9,7 @@ github_username: "PhantomMare"
 #########################################################################################
 ######### Nothing below needs to be changed (unless you know what you're doing) #########
 #########################################################################################
-theme: "no-style-please"
+remote_theme: "no-style-please"
 
 rss: rss
 
