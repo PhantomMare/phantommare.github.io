@@ -12,7 +12,7 @@ There’s a kind of moral underpinning to this argument that suggests a kind of 
 
 It’s an argument that supports a status quo that is rapidly narrowing our choice. 
 
-This post was inspired by the comments beneath an article on The Verge about the coming Light Phone III. There’s a faction in there who react to this kind of phone with a strange kind of disdain that find somewhat inexplicable. It feels like a partisan reaction, to be honest. Or at the very least a reaction that from a very narrow perspective – one that hasn’t considered that people experience tech and the Internet in vastly different ways.
+This post was inspired by the comments beneath an article on The Verge about the coming Light Phone III. There’s a faction in there who react to this kind of phone with a strange kind of disdain. It feels like a partisan reaction, to be honest. Or at the very least a reaction that from a very narrow perspective – one that hasn’t considered that people experience tech and the Internet in vastly different ways.
 
 To me one of the points of tech, computers and the Internet is that  we no longer have to accept one size fits all solutions. But there’s been a flattening happening over the last twenty years, herding everyone into a series of smaller and smaller boxes. 
 
