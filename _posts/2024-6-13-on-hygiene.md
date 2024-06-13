@@ -1,5 +1,3 @@
-###On Hygiene
-
 I’m gonna skip around on this blog, writing about what I’m currently energized about or inspired about at the time, rather than try to plot this out in some sort of logical order. 
 
 To that end, I’m going to skip past (for now) how I stopped using smartphones several years ago and adopted the (admittedly problematic) Light Phone II as my daily driver. In a later post I will talk at length about why I did this and about what it’s like to be one of the rare people who willfully rejects the smartphone status quo.
