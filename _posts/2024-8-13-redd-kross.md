@@ -1,3 +1,5 @@
+## On Redd Kross
+
 I picked up a CD copy of Redd Kross' 1993 record Phaseshifter at the Rancho Mirage library bookstore. For a quarter. There are handwritten notes on the back of the CD. Somebody popped the jewelcase open and scribbled with a marker impressions of the songs. 
 
 "too long" 
